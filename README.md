@@ -1,3 +1,3 @@
 # proj-1
 <br>
-Author - Ronil Kansoda
+Author - Kansoda Ronil Hiteshbhai
